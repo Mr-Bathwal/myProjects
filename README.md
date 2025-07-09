@@ -1,2 +1,2 @@
 # myProjects
-We will start and end stronger
+We will start and end stronger very soon.
